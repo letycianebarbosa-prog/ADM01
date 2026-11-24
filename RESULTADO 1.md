@@ -1,0 +1,50 @@
+**====================================================**
+
+**RELATÓRIO TEMA 01 — EVOLUÇÃO DA GESTÃO DE CONTEÚDO WEB**
+
+**Disciplina: Administração de Websites**
+
+**Aluno: Letícia Faria, Nadson da Silva e Rafaela Mendonça**
+
+**Turma: Turma não informada**
+
+**Data: 24/11/2026, 14:30:13**
+
+**Nota: 15 / 15 (100%)**
+
+**----------------------------------------------------**
+
+**DETALHAMENTO:**
+
+**Q1 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q2 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q3 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q4 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q5 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q6 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q7 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q8 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q9 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q10 \[atividade oficial]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q11 \[aprofundamento]: \[ACERTO] (marcou: B | correta: B)**
+
+**Q12 \[aprofundamento]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q13 \[aprofundamento]: \[ACERTO] (marcou: B | correta: B)**
+
+**Q14 \[aprofundamento]: \[ACERTO] (marcou: A | correta: A)**
+
+**Q15 \[aprofundamento]: \[ACERTO] (marcou: C | correta: C)**
+
+**====================================================**
+
